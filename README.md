@@ -12,7 +12,7 @@
 - Currently working on exciting projects
 - Always learning new technologies
 - Ask me about anything tech-related
-- Reach me at: **(isi email/kontakmu di sini)**
+- Reach me at: [yoeliyanayulia13@gmail.com](mailto:yoeliyanayulia13@gmail.com)
 
 <br>
 
