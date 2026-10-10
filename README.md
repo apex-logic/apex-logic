@@ -12,7 +12,7 @@
 - Currently working on exciting projects
 - Always learning new technologies
 - Ask me about anything tech-related
-- Reach me at: [nazril732006@gmail.com](mailto:nazril732006@gmail.com)
+- Reach me at: [ijuldure@gmail.com@gmail.com](mailto:ijuldure@gmail.com)
 
 <br>
 
